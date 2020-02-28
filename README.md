@@ -1,0 +1,2 @@
+# scaling-octo-computing-machine
+knowledgeable IT professional having experience from service provider and all points in between. Trained as a web developer, android developer and graphics designer,  I maintain a vast knowledge of the range of computer science,  proficient in an array of operating systems and software packages.  My skills and experience allow me to resolve problems from multiple perspectives as well as giving me the ability to take up on new challenges with ease either as part of a team or working independently,  I will be an asset in any setting.
